@@ -22,6 +22,10 @@
 <p align="center">
 Whisp 2 Int / ⭐ to Add !
 I like friendz, so if you want friendz, be my friend!
+
+<p align="center">
+If you're one of my friends looking at this, hello!! :D
+Also if you speak Alien, gib zop! Yip!
 <br>
 
 <p align="center">
