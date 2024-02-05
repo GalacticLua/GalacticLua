@@ -4,7 +4,11 @@
 
 
 <p align="center">
-<b=°࿐ // Loading . .. [ After Dark ]>
+°࿐ // Loading ... 
+[ After Dark ]
+►                 ▌▌                ■
+
+𝚅𝚘𝚕𝚞𝚖𝚎: ▁▂▃▄▅▆▇▉
 
 
 
@@ -16,6 +20,7 @@
 
 <p align="center">
 Whisp 2 Int / ⭐ to Add !
+I like friendz, so if you want friendz, be my friend!
 <br>
 
 <p align="center">
