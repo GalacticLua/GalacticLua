@@ -1,16 +1,24 @@
-### Hi there 👋
+# -Gob-Gor! 
+<p align="center">
+(Idk how to code well  . . . ✦ )
 
-<!--
-**GalacticLua/GalacticLua** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center">
+# °࿐ // Loading . .. [ After Dark ]
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<p align="center">
+ <image src=https://i.pinimg.com/564x/48/d3/5f/48d35f19467e29b9f146cc8e838aacbd.jpg>
+ </p>
+
+
+
+<p align="center">
+Whisp 2 Int / ⭐ to Add !
+<br>
+
+<p align="center">
+ <image src=https://cdn.discordapp.com/attachments/1127712535869653144/1203888856793878559/image.png?ex=65d2bbde&is=65c046de&hm=b11aa036851060f66ca01d05fdad2bebbd837318669726fe0f1037f0c50ebc1b&>
+<p align="center">
+This gay is the reason i made a github, ew
