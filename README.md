@@ -1,4 +1,4 @@
-# -Gob-Gor! 
+
 <p align="center">
 (Idk how to code well  . . . ✦ )
 
