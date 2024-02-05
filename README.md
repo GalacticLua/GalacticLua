@@ -4,7 +4,7 @@
 
 
 <p align="center">
-# °࿐ // Loading . .. [ After Dark ]
+°࿐ // Loading . .. [ After Dark ]
 
 
 
