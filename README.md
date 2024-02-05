@@ -6,8 +6,9 @@
 <p align="center">
 °࿐ // Loading ... 
 [ After Dark ]
+<p align="center">
 ►                 ▌▌                ■
-
+<p align="center">
 𝚅𝚘𝚕𝚞𝚖𝚎: ▁▂▃▄▅▆▇▉
 
 
