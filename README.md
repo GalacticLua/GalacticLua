@@ -31,6 +31,6 @@ My best friend, my sibling, 💜 Alii the Alien :D Love you twin!!
 <br>
 
 <p align="center">
- <image src=https://cdn.discordapp.com/attachments/1127712535869653144/1203888856793878559/image.png?ex=65d2bbde&is=65c046de&hm=b11aa036851060f66ca01d05fdad2bebbd837318669726fe0f1037f0c50ebc1b&>
+ <image src=https://i.pinimg.com/564x/e4/9d/bf/e49dbf4445905c464732763c36e5edbf.jpg>
 <p align="center">
-This gay is the reason i made a github, ew
+I host Project RE:Genesis and Project Code:Eden ! Welcome to my stupid page where I touch it once and disappear for months.
