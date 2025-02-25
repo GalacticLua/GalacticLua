@@ -1,4 +1,4 @@
-<h1 align="center">✦　　　.　　˚　🌒Lua's Hub! 🚀~
+<h1 align="center">✦　　　.　　˚　🌒Gala's Hub! 🚀~
 
 <p align= "left"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a></h1>
 
@@ -12,7 +12,7 @@
 
 **Founder of Project✦RE:Genesis and The Eden's Project | Code:Eden**
 
-Hi there! I'm Lua, and I'm a writing enhaustist! I tend to be online on different platforms, but mostly on TikTok, Discord, and Ponytown!
+Hi there! I'm Gala/Eden, and I'm a writing enhaustist! I tend to be online on different platforms, but mostly on TikTok, Discord, and Ponytown!
 🌠 ~ Most people know me from my Killing Game Projects: Code;Eden and RE:Genesis! There is a saying another is in the works, but who knows!
 
 🌟 This page is more or less for aesthetics, but if you pass by and click the Github, please consider friending me! 
