@@ -28,7 +28,7 @@ Hi there! I'm Gala/Eden, and I'm a writing enhaustist! I tend to be online on di
 
 ### More info!~  
 
-☄︎₊˚⊹☆ ~ My Discord User is galacticlua, consider friending me if you wanna chat!
+☄︎₊˚⊹☆ ~ My Discord User is eden_volt, consider friending me if you wanna chat!
 
 ๋⭑🛸๋⭑ ~ I really enjoy Writing and Drawing. My part-time is intro to Coding, which is my niche time to time. You will find me doing a lot of things that is forms of creativity! Otherwise, I'm just a simple gal.
 
