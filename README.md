@@ -30,7 +30,7 @@ Hi there! I'm Gala/Eden, and I'm a writing enhaustist! I tend to be online on di
 
 ☄︎₊˚⊹☆ ~ My Discord User is eden_volt, consider friending me if you wanna chat!
 
-๋⭑🛸๋⭑ ~ I really enjoy Writing and Drawing. My part-time is intro to Coding, which is my niche time to time. You will find me doing a lot of things that is forms of creativity! Otherwise, I'm just a simple gal.
+๋⭑🛸๋⭑ ~ I really enjoy Writing and Drawing. My part-time is researching the Ethics of Generative AI, which allows me to research what AI does right and what it does wrong. You will find me doing a lot of things that is forms of creativity! Otherwise, I'm just a simple gal.
 
 ⋆ ☄︎.
 ·˚ * 🔭~ I love Space, it's my go-to thing! If you love space, don't fret! Yap about it all you want with me!
