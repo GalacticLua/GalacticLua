@@ -4,7 +4,7 @@
 
 <div align="center">
  
-[![](https://img.shields.io/badge/✦Strawpage-0a66c2)(https://galacticlua.straw.page)]
+[![](https://img.shields.io/badge/✦Strawpage-0a66c2)](https://galacticlua.straw.page)
 [![](https://img.shields.io/badge/✦Artfight-6364ff)](https://artfight.net/~Eden_VOLT)
 [![](https://img.shields.io/badge/✦Tiktok-ff66ab)](https://www.tiktok.com/@glorpthealien69)
 [![](https://img.shields.io/badge/✦Toyhouse-69899c)](https://toyhou.se/Eden_VOLT)
